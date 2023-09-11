@@ -1,4 +1,4 @@
-# Creamy-creations-1.0🍰:
+# Creamy-creations🍰:
 ## Table of Contents
 1. About Us
 2. Our Services
